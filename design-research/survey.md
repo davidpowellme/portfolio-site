@@ -19,6 +19,10 @@
 - "E. Reliable. Who on the face of the planet would I ever agree to an honesty contract with? Who would I ever get a matching tattoo with? DAVID POWELL.
 Honorable mentions: Stupid, boring, rude, lazy, flippant, shall I continue?
 " Lex
+- " Placid, Unfettered, Aplomb" Brent M
+- "tall, curious, analytical, goofy, random" Sam K
+- "cooperative, efficient, punctual" KEA
+- "You are so kind, always smiling! i would add that your hair style is a trademark!  don’t get rid of it!" Haythem H
 
 ##Answers 2
 - "Navy blue possibly with v subtle accents in chartreuse" Lisa K
@@ -30,3 +34,6 @@ Honorable mentions: Stupid, boring, rude, lazy, flippant, shall I continue?
 - "Color[s] that David's Aura Emits: Sunset orange, or rustic brown (take ur pick)" Caitlyn Z
 - "Burgundy" Eric B
 - "2. I've actually thought about this before. The exact color brown of that pair of boots you wore in Europe and still wear all the time (at least as far as I know). It's a trusty color and weathered because you've experienced a lot but those boots have been on 3(yes?) continents with you and still made it through. They go with pretty much everything just like you fit in everywhere you go. You really can't go wrong with them, and you know you can take them to any environment and they'll serve you well, the way that you can work well in any situation you're faced with. Those boots practically scream Jack Kerouac and so do you." Lex
+- "dark purple" Sam K
+- "green" KEA
+- "Blue is your color!" Haythem H
