@@ -23,6 +23,8 @@ Honorable mentions: Stupid, boring, rude, lazy, flippant, shall I continue?
 - "tall, curious, analytical, goofy, random" Sam K
 - "cooperative, efficient, punctual" KEA
 - "You are so kind, always smiling! i would add that your hair style is a trademark!  don’t get rid of it!" Haythem H
+- "Suave, confident, engaging" Caleb K
+- "Alright my time to shine. So, I think the three best words that would decribe your personality would be friendly, thoughtful, and a little self conscious. You're very open and accepting to new people and love to have good conversations with people that you have met minutes ago. You care a out peoples wellbeing, and want to know about what is going on with them. You like to think about what you say before you say it, and you are very understanding on both sides of arguements. You enjoy having deep conversations about personal goals, God, relationships, art, or anything of the sort, and you make transitions into the real and deep topics almost effortlessly. Like most people, you have a self conscious side to you where you really want people to like you, and you can feel hurt when people do not feel that way about you." Cole H
 
 ##Answers 2
 - "Navy blue possibly with v subtle accents in chartreuse" Lisa K
@@ -37,3 +39,5 @@ Honorable mentions: Stupid, boring, rude, lazy, flippant, shall I continue?
 - "dark purple" Sam K
 - "green" KEA
 - "Blue is your color!" Haythem H
+- "Dark purple" Caleb K
+- "If you were a color, I would say that you would probably be a dark shade of blue, because it is a very opening color, and you are a very opening and accepting person. Also, everyone likes the color blue, and most people really like you." Cole H
